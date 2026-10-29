@@ -74,3 +74,6 @@
 
 **Ссылка:** [Зеркало с подсветкой](https://www.ozon.ru/product/zerkalo-s-podsvetkoy-v-alyuminievoy-rame-nastennoe-one-mirror-130h60sm-svet-teplyy-belyy-1632088828/?from=share_ios&perehod=smm_share_button_productpage_link&sh=nm5RmuttWw&short=mUSrj39)
 
+
+труба РОСТерм
+
