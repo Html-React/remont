@@ -58,7 +58,15 @@
 
 > **Примечание:** размеры приведены по предоставленным характеристикам товаров. Перед монтажом проверьте габариты по инструкциям производителя, расположение коммуникаций и требуемые монтажные зазоры.
 
-## Зеркало с подсветкой в алюминиевой раме настенное ONE MIRROR 130х60см. Свет: Теплый белый 3000К. Серебро
+## 5. Водонагреватель Royal Thermo RWH 50 Splendore
+
+- **Глубина товара**	см 25
+- **Высота товара**	см 85
+- **Ширина товара**	см 43.5
+
+**Ссылка:** [Водонагреватель Royal Thermo RWH 50 Splendore]([https://www.ozon.ru/product/zerkalo-s-podsvetkoy-v-alyuminievoy-rame-nastennoe-one-mirror-130h60sm-svet-teplyy-belyy-1632088828/?from=share_ios&perehod=smm_share_button_productpage_link&sh=nm5RmuttWw&short=mUSrj39](https://www.royal-thermo.ru/catalog/product-vodonagrevatel_royal_thermo_rwh_50_splendore/))
+
+## 6. Зеркало с подсветкой в алюминиевой раме настенное ONE MIRROR 130х60см. Свет: Теплый белый 3000К. Серебро
 
 - **Высота:** см 130
 - **Ширина:** см 60
