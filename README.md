@@ -67,7 +67,7 @@
 **Ссылка:** [Водонагреватель Royal Thermo RWH 50 Splendore](https://www.royal-thermo.ru/catalog/product-vodonagrevatel_royal_thermo_rwh_50_splendore/)
 
 ## 6. Зеркало с подсветкой в алюминиевой раме настенное ONE MIRROR 130х60см. Свет: Теплый белый 3000К. Серебро
-
+- **Питание** 24в (72Вт)
 - **Высота:** см 130
 - **Ширина:** см 60
 
